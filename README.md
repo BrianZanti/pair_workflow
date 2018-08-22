@@ -1,5 +1,3 @@
-Hello Multiverse!
+Hello Omniverse!
 
-
-
-There's so many dimensions!
+What even is this ?!
